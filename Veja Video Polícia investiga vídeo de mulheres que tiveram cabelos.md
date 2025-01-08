@@ -1,7 +1,14 @@
 Mulher fica ferida dentro da Fiocruz em operação policial no RJ; suspeito é morto na região
 Vigilante da Fundação Oswaldo Cruz, em Manguinhos, foi preso durante uma ação da Operação Torniquete
 
-Rafaela Cascardoda CNN , Rio de Janeiro
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
 
 Vidro da Fiocruz atingido por tiro Vidro da Fiocruz atingido por tiro • Reprodução
 
